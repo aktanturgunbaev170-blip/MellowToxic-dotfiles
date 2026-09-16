@@ -1,0 +1,1 @@
+This Wallapers only purple
